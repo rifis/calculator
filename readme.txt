@@ -1,1 +1,1 @@
-I am so beautiful and clever
+I am so clever
